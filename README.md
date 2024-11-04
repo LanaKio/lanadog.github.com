@@ -6,5 +6,5 @@
 
 
 <img src="https://i.ibb.co/9ZfDpsJ/Mainnets.jpg" alt="Mainnets" border="0">
-<img src="https://i.im.ge/2024/11/04/kHlMfL.Mainnets.jpeg" />
+
 <img src="https://i.ibb.co/5c9hRjg/222.jpg" />
